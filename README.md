@@ -1,1 +1,1 @@
-# shanykrauz.com
+# shanykrauz
