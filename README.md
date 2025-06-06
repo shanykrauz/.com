@@ -1,1 +1,1 @@
-# .com
+# shanykrauz.com
